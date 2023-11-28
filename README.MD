@@ -1,4 +1,4 @@
-# CURSO DE JOGOS
+# TRABALHO DE POOA
 
 http://mariojp.com.br
 
